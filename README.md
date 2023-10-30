@@ -1,6 +1,6 @@
 # TAG机场官网地址
 
-最新地址：[tagss01.pro](https://tagss01.pro#/register?invite=1JtQNCWV)
+最新地址：[tagss02.pro](https://tagss02.pro/#/auth/1JtQNCWV)
 
 ## 简介
 
