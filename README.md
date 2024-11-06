@@ -1,6 +1,6 @@
 # TAG机场官网地址
 
-最新地址：[tagss05.pro](https://tagss08.pro/#/auth/1JtQNCWV)
+最新地址：[tagss05.pro](https://569078.dedicated-afflink.com/#/auth/1JtQNCWV)
 
 ## 简介
 
